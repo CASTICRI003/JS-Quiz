@@ -8,3 +8,17 @@ Just click on answers. It'll indicate if you're right or wrong and will give you
 
 ## Credits
 Cristian "The Rat Man" Castillo
+
+
+
+
+
+
+
+
+
+
+
+
+
+noo don't pay attention to the fact that it's not finished shhhhh
